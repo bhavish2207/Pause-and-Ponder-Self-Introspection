@@ -1,1 +1,1 @@
-# Pause-and-Ponder-Self-Introspection
+# Pause-and-Ponder
